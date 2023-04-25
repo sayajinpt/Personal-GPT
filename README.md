@@ -1,3 +1,8 @@
+
+https://www.youtube.com/watch?v=UZCbm1ju8ak&t=47s
+
+
+
 ENGLISH
 
 Want to have your own GPT locally on your computer?
